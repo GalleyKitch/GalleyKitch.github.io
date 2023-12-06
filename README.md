@@ -4,6 +4,7 @@ Blaine Zuriel DLC. Sanchez
 **Lebron James**
 ![Lebron](https://ca-times.brightspotcdn.com/dims4/default/7be9a77/2147483647/strip/true/crop/3548x2516+0+0/resize/1200x851!/quality/75/?url=https%3A%2F%2Fcalifornia-times-brightspot.s3.amazonaws.com%2Fcf%2F67%2F74ef656743528f2f9f7ce02d8dc1%2Fla-photos-1staff-477386-sp-0107-lakers-knicks4-wjs.jpg)
 
+
 **No. 23 – Los Angeles Lakers**
 Position	Small forward / power forward
 League	NBA
@@ -13,17 +14,20 @@ Akron, Ohio, U.S.
 Listed height	6 ft 9 in (2.06 m)
 Listed weight	250 lb (113 kg)
 
+
 **Career information**
 High school	St. Vincent–St. Mary (Akron, Ohio)
 NBA draft	2003: 1st round, 1st overall pick
 Selected by the Cleveland Cavaliers
 Playing career	2003–present
 
+
 **Career history**
 2003–2010	Cleveland Cavaliers
 2010–2014	Miami Heat
 2014–2018	Cleveland Cavaliers
 2018–present	Los Angeles Lakers
+
 
 **Career highlights and awards**
 4× NBA champion (2012, 2013, 2016, 2020)
